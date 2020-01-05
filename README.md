@@ -1,3 +1,35 @@
 # links
 
 http://2f30.org
+https://dataswamp.org
+http://cat-v.org
+https://biniar.xyz
+http://www.funktional.info
+http://suckless.org
+http://iotek.org
+http://9front.org
+http://www.r-36.net
+http://www.taval.de
+http://www.minimalblue.com
+https://git.fifth.space
+https://drkhsh.at
+http://cyberia.is
+http://darknedgy.net
+http://kilgus.net
+http://uggedal.com
+http://bitreich.org
+https://codemadness.org
+http://dn42.net
+http://www.ngolde.de
+http://www.uni-kassel.de/eecs/fachgebiete/tiks/team.html
+https://who.lh.mk
+http://uriel.cat-v.org
+http://garbe.us
+http://netbeisser.de
+http://frign.de
+http://hendry.iki.fi
+http://aiju.de
+https://dataswamp.org/~lich
+http://www.z3bra.org
+http://www.ewto-brasch.de
+https://hyperboria.net
